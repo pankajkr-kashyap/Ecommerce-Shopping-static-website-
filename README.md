@@ -1,1 +1,1 @@
-# Ecommerce-Shopping-static-website-
+# Ecommerce-Shopping-Static-Website-
